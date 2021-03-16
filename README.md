@@ -1,3 +1,0 @@
-# yeonheeyeh.github.io
-
-finally!
